@@ -1,1 +1,0 @@
-# smanuj.github.io
